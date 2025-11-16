@@ -1,0 +1,1 @@
+You have been given the name of [[Beldora]] in [[Bryn Shander]] as a fellow secret Harper to report to and receive information from. She poses as a unhoused waif.
