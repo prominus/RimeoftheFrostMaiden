@@ -1,0 +1,1 @@
+Speaker of Targos - some say he bought his way into the hearts of fisherfolk. Skath is a lieutenant who leads the town militia.
