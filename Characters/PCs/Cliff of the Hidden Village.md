@@ -87,3 +87,6 @@ These are the two main ideas I have, but it could also be a faction from the Fey
 Cliff's main focus is to find his kin and get them safely back home if possible. However, something he has not come to terms with is that he actually doesn't want to return home.  While there is certainly dangers to be had in Icewind Dale with the extreme cold and eternal twilight, the freedom of movement provided to him is like none he ever experienced in the quite isolated village. For his whole life Cliff had always been part of a clan, looking to do what was best for the clan first.  Here, he is much more independent, and that brings him both joy and shame.
 
 
+### People of Note
+
+Knows a Dwarf in [[Bryn Shander]] that goes by the name of [[Tómas Fickle]]. He is a local smith who has the gift of gab (aka. doesn't know when to shut up).  [[Cliff of the Hidden Village|Cliff]] enjoys listening to him as people of his tribe aren't so open with dialogue.
