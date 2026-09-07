@@ -30,9 +30,9 @@ In the world of Faerûn, the dragons of lore are few and far between.  Most lost
 
 In the mirror sister world of [Abier](https://forgottenrealms.fandom.com/wiki/Abeir), there be dragons a plenty.  Frequently warring and interacting with fellow dragons along with the smaller beings like dragonborn, dwarves, and humans.  The Gods of dragon kind are known to some, prayed too, and reached out for in efforts to keep the balance between dragon and non-dragon alike.
 
-Cliff, until the recently, was counted among dragon kin of this realm.  A gem drangonborn reigning form the mineral rich mountains outside of **Marranth**.  
+Cliff, until the recently, was counted among dragon kin of this realm.  A gem drangonborn reigning from the mineral rich mountains outside of **Marranth**.  
 
-Nestled in the heights of the Marranthian mountains lies a secretive settlemtn known as Houpetor Shirpon. The Hidden Village.  A village purposefully isolated for safety from the ever waring dragons surrounding it.
+Nestled in the heights of the Marranthian mountains lies a secretive settlement known as Houpetor Shirpon. The Hidden Village.  A village purposefully isolated for safety from the ever waring dragons surrounding it.
 ## About the Hidden Village
 
 > [!Note] Aesthetically, I was thinking of an amalgamation of Avatar: The Last Airbender Western Air Temple and the Kakariko village.  
