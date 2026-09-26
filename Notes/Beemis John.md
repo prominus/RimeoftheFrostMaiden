@@ -1,0 +1,1 @@
+A random blind guy from [[Bryn Shander]].  He use to be an adventurer and such, but now he just chills at the [[Northfolk Inn]]. Rumored to have been blinded by [[Beemis Joseph]]

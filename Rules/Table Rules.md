@@ -2,7 +2,7 @@
 
 **Alternative** - if you use a full action to heal, you recover the full hp amount of the consumable.
 
-  
+  ---
 
 **FIRST LEVEL FEAT** - At first level, select a starting Feat!
 

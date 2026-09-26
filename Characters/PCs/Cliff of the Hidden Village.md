@@ -3,6 +3,7 @@ aliases:
   - Cliff
 tags:
   - pc
+owner: Cody
 ---
 
 # Cliff's Background

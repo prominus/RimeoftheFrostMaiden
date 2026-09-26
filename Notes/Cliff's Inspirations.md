@@ -1,1 +1,1 @@
-0 Inspiration token
+1 Inspiration token

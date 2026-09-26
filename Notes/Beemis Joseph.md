@@ -1,0 +1,1 @@
+Rumored to have blinded [[Beemis John]]
